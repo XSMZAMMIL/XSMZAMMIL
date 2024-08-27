@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @XSMZAMMIL
+- 👀 I’m interested in minecraft
+- 🌱 I’m currently learning pvp
+- 💞️ I’m looking to collaborate on .
